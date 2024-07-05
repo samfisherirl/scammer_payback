@@ -14,12 +14,11 @@
 3. Unrealistic Scenario Depictions:
    - Describes overly smooth operations resembling scripted events, raising doubts about authenticity.
    - Utilizes promotional moments within calls that suggest prearranged outcomes.
-
-
+ 
 
 4. Questionable Situational Awareness:
-   - Highlights staged hero moment looking into the camera, thus undermining the purported reality of the situation.
-   - Points out victim behavior that contradicts common sense, e.g., a 77-year-old supposedly naive about scam practices yet knows how to uninstall apps.
+   - Staged hero moment looking into the camera, thus undermining the purported reality of the situation.
+   - Victim behavior that contradicts common sense, e.g., a 77-year-old supposedly naive about scam practices yet knows how to uninstall apps.
 Overall, the narrative constructed around these videos suggests a mix of truth and fiction, tailored to enhance viewer engagement and emotional response, rather than providing a transparent look into anti-scam operations.
 
 # Evidence
