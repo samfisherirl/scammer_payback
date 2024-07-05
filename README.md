@@ -9,7 +9,7 @@ He livestreams, cropping to YouTube videos. His biggest videos contain a sequenc
 
 Some of his interactions appear genuine. There seems to be a template for successful videos on his channel involving conversations with the scammer and victim. It always magically unfolds without major hiccups. The victim consistently asks, "How do you make money?" allowing him to promote his channel. Then, he emotionally expresses doing it for the people.
 
-Additionally, he displays hacking skills akin to *The Minority Report*. He infiltrates scammers' computers seamlessly. Moreover, he seemingly accesses victims' phones and computers with minimal delay or issues.
+Additionally, he claims hacking skills akin to *The Minority Report*. He infiltrates scammers' computers seamlessly. Moreover, he seemingly accesses victims' phones and computers with minimal delay or issues. None of this gets shown to the audience. The audience never sees any law enforcement and never sees any hacking. 
 
 ## Key Reasons for Skepticism:
 Claims to have taken down three call centers in India, as reported in national news. However, his absence in the story, discrepancies in the narrative and timeline, and lack of evidence undermine his claims.
