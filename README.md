@@ -18,7 +18,7 @@ All significant videos follow the same path with implausibly improbable outcomes
 - He consistently hacks both scam victims and scammers, and manages to get both on the phone. 
 - Victims do not question him during calls; they seem elated to hear from him.
 - Victims often ask leading questions that seamlessly segue to his self-promotion at the climax of the narrative.
-- I have had a few dozen customers I had to talk to about an active fraud, people are always weary and always upset. Theyre being scammed at the time, and they dont trust anyone. Especially since the *Scammer* is calling usually from "Fraud Prevention". It becomes confusing fast. 
+- I have had a few dozen customers I had to talk to about an active fraud, people are always weary and rarely will believe that you're with <`insert financial institution`>. Theyre being scammed at the time, and they dont trust anyone. Especially since the *Scammer* is calling usually from "Fraud Prevention". It becomes confusing fast. 
 
 ### Abstract contradictions and inflated claims of authority:
 - Alleges connections with the FBI, suggesting they are on standby during calls.
