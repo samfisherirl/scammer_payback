@@ -16,11 +16,8 @@
    - Utilizes promotional moments within calls that suggest prearranged outcomes.
 
 
-4. Content Manipulation for Engagement:
-   - Alleges the mixing of real and fabricated events to sustain viewer interest, likening it to a slippery slope into deceptive practices.
 
-
-5. Questionable Situational Awareness:
+4. Questionable Situational Awareness:
    - Highlights staged hero moment looking into the camera, thus undermining the purported reality of the situation.
    - Points out victim behavior that contradicts common sense, e.g., a 77-year-old supposedly naive about scam practices yet knows how to uninstall apps.
 Overall, the narrative constructed around these videos suggests a mix of truth and fiction, tailored to enhance viewer engagement and emotional response, rather than providing a transparent look into anti-scam operations.
