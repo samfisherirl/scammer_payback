@@ -1,8 +1,6 @@
 # Allegations; Scammer Payback is fake. 
-Claim of Shutting Down Call Centers:
+### Key Reasons for Skepticism:
 
-
-Key Reasons for Skepticism:
 1. Inflated Claims of Authority:
    - Alleges connections with the FBI, implying local law enforcement is ineffective.
    - Claims the Nigerian Federal Police will conduct raids at his behest, alongside conflicting statements about his influence over police actions.
