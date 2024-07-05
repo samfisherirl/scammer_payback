@@ -1,5 +1,5 @@
 # Allegation: Scammer Payback big videos are fake. 
-skip to here for evidence, videos. 
+Skip to here for evidence, videos.  https://github.com/samfisherirl/scammer_payback/blob/main/README.md#evidence
 ### Key Reasons for Skepticism:
 
 1. Claims to have taken down three call centers in India, which was reported in national news. However, the YouTuber isn't mentioned in the story, the narrative doesn't align, and there's no evidence. This is just the first story I looked at.
