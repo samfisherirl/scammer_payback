@@ -1,4 +1,4 @@
-# Allegations; Scammer Payback is fake. 
+# Allegations; Scammer Payback big videos are fake. 
 ### Key Reasons for Skepticism:
 
 1. Inflated Claims of Authority:
