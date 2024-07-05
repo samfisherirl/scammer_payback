@@ -27,13 +27,9 @@ Contradictory elements:
 - Mentions having the police "on standby," seeming implausible for an individual YouTuber.
 - Asserts possession of actionable intelligence yet fails to engage with authorities.
 
-Unrealistic scenario depictions:
-- Describes overly smooth operations resembling scripted events, casting doubts on authenticity.
-- Incorporates promotional moments within calls, implying prearranged outcomes.
-
 Questionable situational awareness:
 - Stages hero moments by looking into the camera, undermining the supposed reality of the situation.
-- Depicts victim behavior that contradicts common sense, such as a supposedly naive 77-year-old knowing how to uninstall apps.
+- Depicts victim behavior that contradicts common sense, such as a supposedly naive 77-year-old woman who is a victim but also knows how to uninstall apps on her iphone.
  
 
 # Evidence
