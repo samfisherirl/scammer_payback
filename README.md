@@ -49,28 +49,9 @@ He Livestreams, cropping to Yt videos. His biggest videos contain a set of event
 
 _______
 
--  https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
-- calls national police, they say call local
-- he does, they help supposedly
-- he calls this doing it backwards
-- cries to drive it home
-- https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
-_______
 - my cross ref:https://www.google.com/search?q="Scammer+Payback"+ludhiana+fake+call+center&sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&biw=1514&bih=987&sxsrf=ADLYWIIIQp657Kigu9o1shY_19K2iE30fA%3A1720204146879&ei=cjuIZqigNcmlptQP85OOmAk&ved=0ahUKEwioofbow5CHAxXJkokEHfOJA5MQ4dUDCA8&uact=5&oq="Scammer+Payback"+ludhiana+fake+call+center&gs_lp=Egxnd3Mtd2l6LXNlcnAiKyJTY2FtbWVyIFBheWJhY2siIGx1ZGhpYW5hIGZha2UgY2FsbCBjZW50ZXIyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEdIsc0GUMzLBljMywZwBHgBkAEAmAEAoAEAqgEAuAEDyAEA-AEBmAIEoAIQmAMAiAYBkAYIkgcBNKAHAA&sclient=gws-wiz-serp
 
 - and again https://www.google.com/search?sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&sxsrf=ADLYWIJn_ItGATj_H8ZGfv72btNWmgZRDQ:1720204143272&q="Scammer+Payback"+"pierogi"+ludhiana+fake+call+center&spell=1&sa=X&ved=2ahUKEwi8l5rnw5CHAxXyAHkGHfayCpMQBSgAegQICRAB&biw=1514&bih=987&dpr=1.2
-_______
-
-another promo drop,   magically works out
-https://youtu.be/UdEELggaY5Q?si=vJRZueiQ7xZzrNAI&t=777
-
-concerns at timestamp:
-- police on standby? for a youtuber 
-- has enough info to send to authorities, then doesnt?
-- looks into camera for big moment when he saves lady
-- she knows how to delete apps but shes stupid enough to get scaammeed
-- 77 years old
-- overly emotional at the end and makes emtotional appeal
 _______
 
 Vid2:
@@ -83,6 +64,26 @@ Vid3:
 - Describes actions without showing methods: https://youtu.be/N0HfSLa9l3w?t=164
 - Interaction with notepad.exe and scammers: https://youtu.be/N0HfSLa9l3w?t=675
 
+_______
+
+### Further evidence 
+
+-  https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
+- calls national police, they say call local
+- he does, they help supposedly
+- he calls this doing it backwards
+- cries to drive it home
+- https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
+another promo drop,   magically works out
+https://youtu.be/UdEELggaY5Q?si=vJRZueiQ7xZzrNAI&t=777
+
+concerns at timestamp:
+- police on standby? for a youtuber 
+- has enough info to send to authorities, then doesnt?
+- looks into camera for big moment when he saves lady
+- she knows how to delete apps but shes stupid enough to get scaammeed
+- 77 years old
+- overly emotional at the end and makes emtotional appeal
 
 Live Session:
 - Extended live session timestamp: https://www.youtube.com/live/0AzpVa1jJ3o?t=7607
