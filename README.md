@@ -32,38 +32,34 @@ Questionable situational awareness:
 - Depicts victim behavior that contradicts common sense, such as a supposedly naive 77-year-old woman who is a victim but also knows how to uninstall apps on her iphone.
  
 
-# Evidence
+# Evidence part 1
 
-### says he shut down call center, no where in the news is he mentioned;
+### SP says he shut down call center, no where in the news is he mentioned; 
 - "Scammer Payback" "pierogi" Ludhiana fake call center claim: https://youtu.be/UdEELggaY5Q?t=40
+- No part of the video includes anything but threater. No calls with scammmers, no calls with police, its just a story time video/ 
+- Claims of having FBI contacts he controls: https://youtu.be/_3RBNNbMhqs?t=467
 - story: https://timesofindia.indiatimes.com/city/ludhiana/fake-call-centre-busted-in-ludhiana-29-held/articleshow/102032566.cms#:~:text=Ludhiana%20police%20on%20Friday%20claimed,top%20multinational%20companies%2C%20officials%20said.
-- 
+- claims local police are trash https://youtu.be/_3RBNNbMhqs?si=3eIYENUcz5WpLlWD&t=467
 - Doubtful footage, no external confirmation: https://youtu.be/UdEELggaY5Q?t=499
-- There's not a single video of scammers, and Scammer Payback. Not a single interaction with police. Its all theatre. 
-- Suspiciously convenient promotional moment: https://youtu.be/UdEELggaY5Q?t=777
+- Suspiciously convenient promotional moment: https://youtu.be/UdEELggaY5Q?t=767
 - claim: https://youtu.be/UdEELggaY5Q?t=40
 - celebrating on the day of the raid as if they did something, and we saw a single conversation with an officer. https://youtu.be/UdEELggaY5Q?t=3369
 _______
+
+#### Searching his channel and region of events comes up nothing found. 
 
 - my cross ref:https://www.google.com/search?q="Scammer+Payback"+ludhiana+fake+call+center&sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&biw=1514&bih=987&sxsrf=ADLYWIIIQp657Kigu9o1shY_19K2iE30fA%3A1720204146879&ei=cjuIZqigNcmlptQP85OOmAk&ved=0ahUKEwioofbow5CHAxXJkokEHfOJA5MQ4dUDCA8&uact=5&oq="Scammer+Payback"+ludhiana+fake+call+center&gs_lp=Egxnd3Mtd2l6LXNlcnAiKyJTY2FtbWVyIFBheWJhY2siIGx1ZGhpYW5hIGZha2UgY2FsbCBjZW50ZXIyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEdIsc0GUMzLBljMywZwBHgBkAEAmAEAoAEAqgEAuAEDyAEA-AEBmAIEoAIQmAMAiAYBkAYIkgcBNKAHAA&sclient=gws-wiz-serp
 
 - and again https://www.google.com/search?sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&sxsrf=ADLYWIJn_ItGATj_H8ZGfv72btNWmgZRDQ:1720204143272&q="Scammer+Payback"+"pierogi"+ludhiana+fake+call+center&spell=1&sa=X&ved=2ahUKEwi8l5rnw5CHAxXyAHkGHfayCpMQBSgAegQICRAB&biw=1514&bih=987&dpr=1.2
 _______
-
-### Reviewed video #2 :
-- Reporting to someone currently being scammed that they are talking to a scammer should almost never be a smooth intro but they always are for him. Like he's talking to someone he knows. 
-- Fakes being a woman: https://youtu.be/_3RBNNbMhqs?t=285
-- Claims of having FBI contacts: https://youtu.be/_3RBNNbMhqs?t=467
-
-_______
-
-### Further evidence 
+ 
+### Evidence part 2 
 
 Soy Camera Rant and Interaction:
 - Soy camera rant: https://youtu.be/6xN_6joxx5U?t=377
 - Immediate response from victim without introduction: https://youtu.be/6xN_6joxx5U?t=415
-- Perfect soy moment conclusion: https://youtu.be/6xN_6joxx5U?t=521
-
+- Perfect soy moment conclusion: https://youtu.be/6xN_6joxx5U?t=521 
+- Fakes being a woman: https://youtu.be/_3RBNNbMhqs?t=285
 - Contradictionn about his engagement with lawenforcement
 -      https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
 - calls national police, they say call local. he does, they help supposedly.  he calls this doing it backwards. Before, he said local police never help. 
