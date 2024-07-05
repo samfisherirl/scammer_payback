@@ -59,7 +59,7 @@ _______
 _______
 
 ### Reviewed video #2 :
-- When he connects with a victim (I have spoken to people who were scammed, unrelated), people are always weary and always upset. Theyre being scammed at the time, and they wont trust anyone.
+- When he connects with a victim (I have spoken to people who were scammed, unrelated), people are always weary and always upset. Theyre being scammed at the time, and they wont trust anyone. Especially since the *Scammer* is calling usually from "Fraud Prevention". It becomes confusing fast. 
 - Reporting to someone currently being scammed that they are talking to a scammer should almost never be a smooth intro but they always are for him. Like he's talking to someone he knows. 
 - Fakes being a woman: https://youtu.be/_3RBNNbMhqs?t=285
 - Claims of having FBI contacts: https://youtu.be/_3RBNNbMhqs?t=467
