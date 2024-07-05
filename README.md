@@ -1,8 +1,15 @@
 # Allegation: Youtuber Scammer Payback is a fake. 
 Skip to here for evidence, videos.  https://github.com/samfisherirl/scammer_payback/blob/main/README.md#evidence
+
+## Preface
+
+Scammer Payback is a Scam Vigilantee, targeting India and Nigerian scammers who trick the elderly into transfer funds via social engineering and some tech savvy. 
+
+He Livestreams, cropping to Yt videos. Hi biggest videos contain a set of events that are highly improbable, but seems to happen over and over in exactly the same way. 
+
 ### Key Reasons for Skepticism:
 
-1. Claims to have taken down three call centers in India, which was reported in national news. However, the YouTuber isn't mentioned in the story, the narrative & timeline doesn't align, and there's no evidence. This is just the first story I looked at.
+1. Claims to have taken down three call centers in India, which was reported in national news. However, the YouTuber isn't mentioned in the story, the narrative & timeline doesn't align, and there's no evidence backing his claims. This is just the first story I looked at.
 2.  All significant videos follow the exact same path and have impossibly improbable outcomes. Indicators he has big events scripted, and those scripted events have actors. 
     - He always manages to talk to both the victim of the scam and the scammer.
     - They do not ask questions when he calls; instead, they say weird, unprompted things.
