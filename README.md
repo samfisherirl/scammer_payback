@@ -31,10 +31,10 @@
 - claim: https://youtu.be/UdEELggaY5Q?t=40
 - story: https://timesofindia.indiatimes.com/city/ludhiana/fake-call-centre-busted-in-ludhiana-29-held/articleshow/102032566.cms#:~:text=Ludhiana%20police%20on%20Friday%20claimed,top%20multinational%20companies%2C%20officials%20said.
 
- calls national police, they say call local
-he does, they help supposedly
-he calls this doing it backwards
-lmao https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
+- calls national police, they say call local
+- he does, they help supposedly
+- he calls this doing it backwards
+- lmao https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
 
 - cries to drive it home
 - https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
