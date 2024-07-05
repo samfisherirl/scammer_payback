@@ -1,4 +1,4 @@
-Claims of 
+# Allegations; Scammer Payback is fake. 
 Claim of Shutting Down Call Centers:
 
 
