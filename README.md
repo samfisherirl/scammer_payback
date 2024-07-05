@@ -9,6 +9,8 @@ He Livestreams, cropping to Yt videos. His biggest videos contain a set of event
 
 I believe some of his interactions are genuine. There seems to be a template for a successful video on his channel, and that involves talking to the Scammer and the Victim. Somehow, it always magically happens, there are never major hiccups.  The victim always asks "how do you make money", and he gets to dunk on the victim with a promo for his channel. Then he cries about doing it for the people. 
 
+Lastly, he has *The Minority Report* levels of hacking. He hacks into the scammers computers, which is fine. He also seemingly hacks into the victims phone, and their computer, with almost no delay or issues. 
+
 ### Key Reasons for Skepticism:
 
 1. Claims to have taken down three call centers in India, which was reported in national news. However, the YouTuber isn't mentioned in the story, the narrative & timeline doesn't align, and there's no evidence backing his claims. This is just the first story I looked at.
