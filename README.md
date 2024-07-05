@@ -3,7 +3,7 @@ Skip to here for evidence, videos.  https://github.com/samfisherirl/scammer_payb
 ### Key Reasons for Skepticism:
 
 1. Claims to have taken down three call centers in India, which was reported in national news. However, the YouTuber isn't mentioned in the story, the narrative & timeline doesn't align, and there's no evidence. This is just the first story I looked at.
-2.  All significant videos follow the exact same path and have impossibly improbable outcomes.
+2.  All significant videos follow the exact same path and have impossibly improbable outcomes. Indicators he has big events scripted, and those scripted events have actors. 
     - He always manages to talk to both the victim of the scam and the scammer.
     - They do not ask questions when he calls; instead, they say weird, unprompted things.
     - They always ask him something that segues into his self promo.
