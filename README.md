@@ -18,6 +18,7 @@ All significant videos follow the same path with implausibly improbable outcomes
 - He consistently hacks both scam victims and scammers, and manages to get both on the phone. 
 - Victims do not question him during calls; they seem elated to hear from him.
 - Victims often ask leading questions that seamlessly segue to his self-promotion at the climax of the narrative.
+- I have had a few dozen customers I had to talk to about an active fraud, people are always weary and always upset. Theyre being scammed at the time, and they dont trust anyone. Especially since the *Scammer* is calling usually from "Fraud Prevention". It becomes confusing fast. 
 
 ### Abstract contradictions and inflated claims of authority:
 - Alleges connections with the FBI, suggesting they are on standby during calls.
@@ -52,7 +53,6 @@ _______
 _______
 
 ### Reviewed video #2 :
-- When he connects with a victim (I have spoken to people who were scammed, unrelated), people are always weary and always upset. Theyre being scammed at the time, and they wont trust anyone. Especially since the *Scammer* is calling usually from "Fraud Prevention". It becomes confusing fast. 
 - Reporting to someone currently being scammed that they are talking to a scammer should almost never be a smooth intro but they always are for him. Like he's talking to someone he knows. 
 - Fakes being a woman: https://youtu.be/_3RBNNbMhqs?t=285
 - Claims of having FBI contacts: https://youtu.be/_3RBNNbMhqs?t=467
