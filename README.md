@@ -40,10 +40,10 @@ Questionable situational awareness:
 
 ### says he shut down call center, no where in the news is he mentioned;
 - "Scammer Payback" "pierogi" Ludhiana fake call center claim: https://youtu.be/UdEELggaY5Q?t=40
+- story: https://timesofindia.indiatimes.com/city/ludhiana/fake-call-centre-busted-in-ludhiana-29-held/articleshow/102032566.cms#:~:text=Ludhiana%20police%20on%20Friday%20claimed,top%20multinational%20companies%2C%20officials%20said.
 - Doubtful footage, no external confirmation: https://youtu.be/UdEELggaY5Q?t=499
 - Suspiciously convenient promotional moment: https://youtu.be/UdEELggaY5Q?t=777
 - claim: https://youtu.be/UdEELggaY5Q?t=40
-- story: https://timesofindia.indiatimes.com/city/ludhiana/fake-call-centre-busted-in-ludhiana-29-held/articleshow/102032566.cms#:~:text=Ludhiana%20police%20on%20Friday%20claimed,top%20multinational%20companies%2C%20officials%20said.
 - celebrating on the day of the raid as if they did something, and we saw a single conversation with an officer. https://youtu.be/UdEELggaY5Q?t=3369
 _______
 
