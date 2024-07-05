@@ -7,7 +7,7 @@ Scammer Payback is a Scam Vigilantee, targeting Indian and Nigerian scammers who
 
 He Livestreams, cropping to Yt videos. His biggest videos contain a set of events that are highly improbable, but seems to happen over and over in exactly the same way. 
 
-I believe some of his interactions are genuine. There seems to be a template for a successful video on his channel, and thats talking to the Scammer and the Victim. Somehow, it magically happens. 
+I believe some of his interactions are genuine. There seems to be a template for a successful video on his channel, and that involves talking to the Scammer and the Victim. Somehow, it always magically happens, there are never major hiccups.  The victim always asks "how do you make money", and he gets to dunk on the victim with a promo for his channel. Then he cries about doing it for the people. 
 
 ### Key Reasons for Skepticism:
 
