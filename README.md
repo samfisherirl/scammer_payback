@@ -3,7 +3,8 @@
 
 1. Inflated Claims of Authority:
    - Alleges connections with the FBI, says they are on standby during calls. 
-   - Claims the Nigerian Federal Police will conduct raids at his behest, alongside conflicting statements about his influence over police actions.
+   - Claims the Nigerian Federal Police will conduct raids at his behest.
+   - Simultainiously says local PD is ineffective. 
 
 
 2. Contradictory Elements:
