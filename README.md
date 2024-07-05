@@ -31,6 +31,11 @@
 - claim: https://youtu.be/UdEELggaY5Q?t=40
 - story: https://timesofindia.indiatimes.com/city/ludhiana/fake-call-centre-busted-in-ludhiana-29-held/articleshow/102032566.cms#:~:text=Ludhiana%20police%20on%20Friday%20claimed,top%20multinational%20companies%2C%20officials%20said.
 
+ calls national police, they say call local
+he does, they help supposedly
+he calls this doing it backwards
+lmao https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
+
 - cries to drive it home
 - https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
 - my cross ref:https://www.google.com/search?q="Scammer+Payback"+ludhiana+fake+call+center&sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&biw=1514&bih=987&sxsrf=ADLYWIIIQp657Kigu9o1shY_19K2iE30fA%3A1720204146879&ei=cjuIZqigNcmlptQP85OOmAk&ved=0ahUKEwioofbow5CHAxXJkokEHfOJA5MQ4dUDCA8&uact=5&oq="Scammer+Payback"+ludhiana+fake+call+center&gs_lp=Egxnd3Mtd2l6LXNlcnAiKyJTY2FtbWVyIFBheWJhY2siIGx1ZGhpYW5hIGZha2UgY2FsbCBjZW50ZXIyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEdIsc0GUMzLBljMywZwBHgBkAEAmAEAoAEAqgEAuAEDyAEA-AEBmAIEoAIQmAMAiAYBkAYIkgcBNKAHAA&sclient=gws-wiz-serp
