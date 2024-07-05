@@ -3,7 +3,7 @@ Skip to here for evidence, videos.  https://github.com/samfisherirl/scammer_payb
 
 ## Preface
 
-Scammer Payback is a Scam Vigilantee, targeting India and Nigerian scammers who trick the elderly into transfer funds via social engineering and some tech savvy. 
+Scammer Payback is a Scam Vigilantee, targeting Indian and Nigerian scammers who trick the elderly into transfer funds via social engineering and some tech savvy. 
 
 He Livestreams, cropping to Yt videos. Hi biggest videos contain a set of events that are highly improbable, but seems to happen over and over in exactly the same way. 
 
