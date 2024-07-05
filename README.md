@@ -3,43 +3,36 @@ Skip to here for evidence, videos.  https://github.com/samfisherirl/scammer_payb
 
 ## Preface
 
-Scammer Payback is a Scam Vigilante, targeting Indian and Nigerian scammers who trick the elderly into transfering funds via social engineering and some tech savvy. 
+Scammer Payback is a Scam Vigilante, targeting Indian and Nigerian scammers who trick the elderly into transferring funds via social engineering and tech savvy tactics.
 
-He Livestreams, cropping to Yt videos. His biggest videos contain a set of events that are highly improbable, but seems to happen over and over in exactly the same way. 
+He livestreams, cropping to YouTube videos. His biggest videos contain a sequence of events that are highly improbable but seem to happen repeatedly in the exact same way.
 
-I believe some of his interactions are genuine. There seems to be a template for a successful video on his channel, and that involves talking to the Scammer and the Victim. Somehow, it always magically happens, there are never major hiccups.  The victim always asks "how do you make money", and he gets to dunk on the victim with a promo for his channel. Then he cries about doing it for the people. 
+Some of his interactions appear genuine. There seems to be a template for successful videos on his channel involving conversations with the scammer and victim. It always magically unfolds without major hiccups. The victim consistently asks, "How do you make money?" allowing him to promote his channel. Then, he emotionally expresses doing it for the people.
 
-Lastly, he has *The Minority Report* levels of hacking. He hacks into the scammers computers, which is fine. He also seemingly hacks into the victims phone, and their computer, with almost no delay or issues. 
+Additionally, he displays hacking skills akin to *The Minority Report*. He infiltrates scammers' computers seamlessly. Moreover, he seemingly accesses victims' phones and computers with minimal delay or issues.
 
-## Key Reasons for Skepticism:
+### Key Reasons for Skepticism:
+Claims to have taken down three call centers in India, as reported in national news. However, his absence in the story, discrepancies in the narrative and timeline, and lack of evidence undermine his claims.
 
-1. Claims to have taken down three call centers in India, which was reported in national news. However, the YouTuber isn't mentioned in the story, the narrative & timeline doesn't align, and there's no evidence backing his claims. This is just the first story I looked at.
-2.  All significant videos follow the exact same path and have impossibly improbable outcomes. Indicators he has big events scripted, and those scripted events have actors. 
-    - He always manages to talk to both the victim of the scam and the scammer.
-    - The victim does not ask questions when he calls; the person getting scammed is always happy to hear from him. 
-    - The victim always asks him something that segues into his self promo at the last arc of the story.
+All significant videos follow the same path with implausibly improbable outcomes. There are indications that significant events are scripted with actors.
+He consistently converses with both scam victims and scammers.
+Victims do not question him during calls; they seem elated to hear from him.
+Victims often ask leading questions that seamlessly lead to his self-promotion at the climax of the narrative.
 
-## Abstract contradictions 
+Abstract contradictions and inflated claims of authority:
+- Alleges connections with the FBI, suggesting they are on standby during calls.
+- Claims to have the Nigerian Federal Police conduct raids at his request, while critiquing local law enforcement.
+Contradictory elements:
+- Mentions having the police "on standby," seeming implausible for an individual YouTuber.
+- Asserts possession of actionable intelligence yet fails to engage with authorities.
 
-1. Inflated Claims of Authority:
-   - Alleges connections with the FBI, says they are on standby during calls. 
-   - Claims the Nigerian Federal Police will conduct raids at his behest.
-   - Simultainiously says local PD is ineffective. 
+Unrealistic scenario depictions:
+- Describes overly smooth operations resembling scripted events, casting doubts on authenticity.
+- Incorporates promotional moments within calls, implying prearranged outcomes.
 
-
-2. Contradictory Elements:
-   - Mentions having the police "on standby" which seems implausible for an individual YouTuber.
-   - Asserts possession of actionable intelligence yet fails to engage with authorities.
-
-
-3. Unrealistic Scenario Depictions:
-   - Describes overly smooth operations resembling scripted events, raising doubts about authenticity.
-   - Utilizes promotional moments within calls that suggest prearranged outcomes.
- 
-
-4. Questionable Situational Awareness:
-   - Staged hero moment looking into the camera, thus undermining the purported reality of the situation.
-   - Victim behavior that contradicts common sense, e.g., a 77-year-old supposedly naive about scam practices yet knows how to uninstall apps.
+Questionable situational awareness:
+- Stages hero moments by looking into the camera, undermining the supposed reality of the situation.
+- Depicts victim behavior that contradicts common sense, such as a supposedly naive 77-year-old knowing how to uninstall apps.
  
 
 # Evidence
