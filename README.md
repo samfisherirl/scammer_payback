@@ -29,18 +29,27 @@ Overall, the narrative constructed around these videos suggests a mix of truth a
 
 # Evidence
 
-
-
+### says he shut down call center, no where in the news is he mentioned;
 - "Scammer Payback" "pierogi" Ludhiana fake call center claim: https://youtu.be/UdEELggaY5Q?t=40
 - Doubtful footage, no external confirmation: https://youtu.be/UdEELggaY5Q?t=499
 - Suspiciously convenient promotional moment: https://youtu.be/UdEELggaY5Q?t=777
 claim: https://youtu.be/UdEELggaY5Q?t=40
 story: https://timesofindia.indiatimes.com/city/ludhiana/fake-call-centre-busted-in-ludhiana-29-held/articleshow/102032566.cms#:~:text=Ludhiana%20police%20on%20Friday%20claimed,top%20multinational%20companies%2C%20officials%20said.
 
-my cross ref:https://www.google.com/search?q="Scammer+Payback"+ludhiana+fake+call+center&sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&biw=1514&bih=987&sxsrf=ADLYWIIIQp657Kigu9o1shY_19K2iE30fA%3A1720204146879&ei=cjuIZqigNcmlptQP85OOmAk&ved=0ahUKEwioofbow5CHAxXJkokEHfOJA5MQ4dUDCA8&uact=5&oq="Scammer+Payback"+ludhiana+fake+call+center&gs_lp=Egxnd3Mtd2l6LXNlcnAiKyJTY2FtbWVyIFBheWJhY2siIGx1ZGhpYW5hIGZha2UgY2FsbCBjZW50ZXIyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEdIsc0GUMzLBljMywZwBHgBkAEAmAEAoAEAqgEAuAEDyAEA-AEBmAIEoAIQmAMAiAYBkAYIkgcBNKAHAA&sclient=gws-wiz-serp
+- my cross ref:https://www.google.com/search?q="Scammer+Payback"+ludhiana+fake+call+center&sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&biw=1514&bih=987&sxsrf=ADLYWIIIQp657Kigu9o1shY_19K2iE30fA%3A1720204146879&ei=cjuIZqigNcmlptQP85OOmAk&ved=0ahUKEwioofbow5CHAxXJkokEHfOJA5MQ4dUDCA8&uact=5&oq="Scammer+Payback"+ludhiana+fake+call+center&gs_lp=Egxnd3Mtd2l6LXNlcnAiKyJTY2FtbWVyIFBheWJhY2siIGx1ZGhpYW5hIGZha2UgY2FsbCBjZW50ZXIyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEdIsc0GUMzLBljMywZwBHgBkAEAmAEAoAEAqgEAuAEDyAEA-AEBmAIEoAIQmAMAiAYBkAYIkgcBNKAHAA&sclient=gws-wiz-serp
 
-https://www.google.com/search?sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&sxsrf=ADLYWIJn_ItGATj_H8ZGfv72btNWmgZRDQ:1720204143272&q="Scammer+Payback"+"pierogi"+ludhiana+fake+call+center&spell=1&sa=X&ved=2ahUKEwi8l5rnw5CHAxXyAHkGHfayCpMQBSgAegQICRAB&biw=1514&bih=987&dpr=1.2
+- and again https://www.google.com/search?sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&sxsrf=ADLYWIJn_ItGATj_H8ZGfv72btNWmgZRDQ:1720204143272&q="Scammer+Payback"+"pierogi"+ludhiana+fake+call+center&spell=1&sa=X&ved=2ahUKEwi8l5rnw5CHAxXyAHkGHfayCpMQBSgAegQICRAB&biw=1514&bih=987&dpr=1.2
 
+another promo drop, that magically works out
+https://youtu.be/UdEELggaY5Q?si=vJRZueiQ7xZzrNAI&t=777
+
+concerns at timestamp:
+- police on standby? for a youtuber 
+- has enough info to send to authorities, then doesnt?
+- looks into camera for big moment when he saves lady
+- she knows how to delete apps but shes stupid enough to get scaammeed
+- 77 years old
+- overly emotional at the end and makes emtotional appeal
 
 Vid2:
 - Fakes being a woman: https://youtu.be/_3RBNNbMhqs?t=285
