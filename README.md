@@ -87,7 +87,7 @@ Doubtful Technical Descriptions:
 Vague on the technical methods employed for tracking and confronting scammers.
 Relies on simple tools like Notepad for processes that would typically require more sophisticated approaches.
 Too Perfect Situation Resolutions:
-Each video ends in a "soy moment," suggesting an ideal, perhaps unrealistic, resolution every time.
+Each video reportedly ends in a "soy moment," suggesting an ideal, perhaps unrealistic, resolution every time.
 Suspicious Victim Behavior:
 Victims in the videos sometimes immediately claim they've not given out information without proper questioning.
 Questionable Law Enforcement Relationships:
