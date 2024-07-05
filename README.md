@@ -75,7 +75,7 @@ Soy Camera Rant and Interaction:
 - Perfect soy moment conclusion: https://youtu.be/6xN_6joxx5U?t=521
 
 
-
+# General outline 
 
 **Overview of Compelling Points Indicating the Video Might be Faked:**
 
