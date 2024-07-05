@@ -11,7 +11,7 @@ I believe some of his interactions are genuine. There seems to be a template for
 
 Lastly, he has *The Minority Report* levels of hacking. He hacks into the scammers computers, which is fine. He also seemingly hacks into the victims phone, and their computer, with almost no delay or issues. 
 
-### Key Reasons for Skepticism:
+## Key Reasons for Skepticism:
 
 1. Claims to have taken down three call centers in India, which was reported in national news. However, the YouTuber isn't mentioned in the story, the narrative & timeline doesn't align, and there's no evidence backing his claims. This is just the first story I looked at.
 2.  All significant videos follow the exact same path and have impossibly improbable outcomes. Indicators he has big events scripted, and those scripted events have actors. 
@@ -19,7 +19,7 @@ Lastly, he has *The Minority Report* levels of hacking. He hacks into the scamme
     - The victim does not ask questions when he calls; the person getting scammed is always happy to hear from him. 
     - The victim always asks him something that segues into his self promo at the last arc of the story.
 
-### Abstract contradictions 
+## Abstract contradictions 
 
 1. Inflated Claims of Authority:
    - Alleges connections with the FBI, says they are on standby during calls. 
