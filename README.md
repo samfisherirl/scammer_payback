@@ -54,15 +54,9 @@ _______
 - and again https://www.google.com/search?sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&sxsrf=ADLYWIJn_ItGATj_H8ZGfv72btNWmgZRDQ:1720204143272&q="Scammer+Payback"+"pierogi"+ludhiana+fake+call+center&spell=1&sa=X&ved=2ahUKEwi8l5rnw5CHAxXyAHkGHfayCpMQBSgAegQICRAB&biw=1514&bih=987&dpr=1.2
 _______
 
-Vid2:
+### Reviewed video #2 :
 - Fakes being a woman: https://youtu.be/_3RBNNbMhqs?t=285
 - Claims of having FBI contacts: https://youtu.be/_3RBNNbMhqs?t=467
-
-_______
-
-Vid3:
-- Describes actions without showing methods: https://youtu.be/N0HfSLa9l3w?t=164
-- Interaction with notepad.exe and scammers: https://youtu.be/N0HfSLa9l3w?t=675
 
 _______
 
@@ -85,7 +79,7 @@ concerns at timestamp:
 - 77 years old
 - overly emotional at the end and makes emtotional appeal
 
-Live Session:
+Live Stream that corresponds:
 - Extended live session timestamp: https://www.youtube.com/live/0AzpVa1jJ3o?t=7607
 
 
@@ -98,6 +92,10 @@ Soy Camera Rant and Interaction:
 - Immediate response without introduction: https://youtu.be/6xN_6joxx5U?t=415
 - Perfect soy moment conclusion: https://youtu.be/6xN_6joxx5U?t=521
 
+
+### Reviewed video #3 :
+- Describes actions without showing methods: https://youtu.be/N0HfSLa9l3w?t=164
+- Interaction with notepad.exe and scammers: https://youtu.be/N0HfSLa9l3w?t=675
 
 # General outline 
 
