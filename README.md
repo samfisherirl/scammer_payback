@@ -15,7 +15,7 @@ I believe some of his interactions are genuine. There seems to be a template for
 2.  All significant videos follow the exact same path and have impossibly improbable outcomes. Indicators he has big events scripted, and those scripted events have actors. 
     - He always manages to talk to both the victim of the scam and the scammer.
     - The victim does not ask questions when he calls; the person getting scammed is always happy to hear from him. 
-    - The victim always ask him something that segues into his self promo at the last arc of the story.
+    - The victim always asks him something that segues into his self promo at the last arc of the story.
 
 ### Abstract contradictions 
 
