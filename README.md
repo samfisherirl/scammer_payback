@@ -1,4 +1,4 @@
-# Allegation: Youtuber Scammer Payback fakes most of his videos. 
+# Allegation: Youtuber Scammer Payback is a fake. 
 Skip to here for evidence, videos.  https://github.com/samfisherirl/scammer_payback/blob/main/README.md#evidence
 ### Key Reasons for Skepticism:
 
