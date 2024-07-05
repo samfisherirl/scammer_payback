@@ -1,4 +1,6 @@
-# Allegations; Scammer Payback big videos are fake. 3m+ Youtube channel. 
+# Allegation: Scammer Payback big videos are fake. 
+
+### 3m+ Youtube channel. 
 ### Key Reasons for Skepticism:
 
 1. Inflated Claims of Authority:
