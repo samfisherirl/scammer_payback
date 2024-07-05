@@ -7,6 +7,8 @@ Scammer Payback is a Scam Vigilantee, targeting Indian and Nigerian scammers who
 
 He Livestreams, cropping to Yt videos. His biggest videos contain a set of events that are highly improbable, but seems to happen over and over in exactly the same way. 
 
+I believe some of his interactions are genuine. There seems to be a template for a successful video on his channel, and thats talking to the Scammer and the Victim. Somehow, it magically happens. 
+
 ### Key Reasons for Skepticism:
 
 1. Claims to have taken down three call centers in India, which was reported in national news. However, the YouTuber isn't mentioned in the story, the narrative & timeline doesn't align, and there's no evidence backing his claims. This is just the first story I looked at.
