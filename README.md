@@ -73,7 +73,7 @@ Soy Camera Rant and Interaction:
 
 - Contradictionn about his engagement with lawenforcement
 -      https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
-- calls national police, they say call local he does, they help supposedly  he calls this doing it backwards. Before, he said local police never help. 
+- calls national police, they say call local. he does, they help supposedly.  he calls this doing it backwards. Before, he said local police never help. 
 - cries to drive it home
 - https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
 
