@@ -11,15 +11,15 @@ Some of his interactions appear genuine. There seems to be a template for succes
 
 Additionally, he displays hacking skills akin to *The Minority Report*. He infiltrates scammers' computers seamlessly. Moreover, he seemingly accesses victims' phones and computers with minimal delay or issues.
 
-### Key Reasons for Skepticism:
+## Key Reasons for Skepticism:
 Claims to have taken down three call centers in India, as reported in national news. However, his absence in the story, discrepancies in the narrative and timeline, and lack of evidence undermine his claims.
 
 All significant videos follow the same path with implausibly improbable outcomes. There are indications that significant events are scripted with actors.
-He consistently converses with both scam victims and scammers.
-Victims do not question him during calls; they seem elated to hear from him.
-Victims often ask leading questions that seamlessly lead to his self-promotion at the climax of the narrative.
+- He consistently hacks both scam victims and scammers, and manages to get both on the phone. 
+- Victims do not question him during calls; they seem elated to hear from him.
+- Victims often ask leading questions that seamlessly segue to his self-promotion at the climax of the narrative.
 
-Abstract contradictions and inflated claims of authority:
+### Abstract contradictions and inflated claims of authority:
 - Alleges connections with the FBI, suggesting they are on standby during calls.
 - Claims to have the Nigerian Federal Police conduct raids at his request, while critiquing local law enforcement.
 Contradictory elements:
