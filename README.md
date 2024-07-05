@@ -62,14 +62,20 @@ _______
 
 ### Further evidence 
 
--  https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
-- calls national police, they say call local
-- he does, they help supposedly
-- he calls this doing it backwards
+Soy Camera Rant and Interaction:
+- Soy camera rant: https://youtu.be/6xN_6joxx5U?t=377
+- Immediate response from victim without introduction: https://youtu.be/6xN_6joxx5U?t=415
+- Perfect soy moment conclusion: https://youtu.be/6xN_6joxx5U?t=521
+
+- Contradictionn about his engagement with lawenforcement
+-      https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
+- calls national police, they say call local he does, they help supposedly  he calls this doing it backwards. Before, he said local police never help. 
 - cries to drive it home
 - https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
-another promo drop,   magically works out
+
+another promo drop, magically works out
 https://youtu.be/UdEELggaY5Q?si=vJRZueiQ7xZzrNAI&t=777
+
 
 concerns at timestamp:
 - police on standby? for a youtuber 
@@ -79,21 +85,12 @@ concerns at timestamp:
 - 77 years old
 - overly emotional at the end and makes emtotional appeal
 
-Live Stream that corresponds:
-- Extended live session timestamp: https://www.youtube.com/live/0AzpVa1jJ3o?t=7607
-
-
+Example livestream: [https://www.youtube.com/live/0AzpVa1jJ3o?t=7607
+](https://www.youtube.com/live/0AzpVa1jJ3o?si=Kd0oou1-eWApHjww&t=6001)
+ 
 Promotional Disclaimer:
-- Clarifying non-promotional intent: https://youtu.be/9Zo_uVeEPCM?t=1959
-
-
-Soy Camera Rant and Interaction:
-- Soy camera rant: https://youtu.be/6xN_6joxx5U?t=377
-- Immediate response without introduction: https://youtu.be/6xN_6joxx5U?t=415
-- Perfect soy moment conclusion: https://youtu.be/6xN_6joxx5U?t=521
-
-
-### Reviewed video #3 :
+- Another victim-promo: https://youtu.be/9Zo_uVeEPCM?t=1959
+ 
 - Describes actions without showing methods: https://youtu.be/N0HfSLa9l3w?t=164
 - Interaction with notepad.exe and scammers: https://youtu.be/N0HfSLa9l3w?t=675
 
