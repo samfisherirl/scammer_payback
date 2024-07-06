@@ -56,11 +56,10 @@ I cant believe this gas station clerk is also as friendly as the victim.
 
 https://youtu.be/GsJigfdl8F8?si=j_sizeH6x9hsdXLL&t=448 
 
-Seperate video with similar example 
-- https://youtu.be/1SmR_8Azjns?si=_E3Sthilgr8kjWRm&t=715
+Seperate video with similar example:
+- https://youtu.be/1SmR_8Azjns?si=_E3Sthilgr8kjWRm&t=715 
+ 
 
-
-- Watch 2-5 minutes each based on relevancy.  
 - Contradictionn about his engagement with lawenforcement - claims FBI on standbye.
 -      https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
  - cries on  drive home -> hes always crying https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
