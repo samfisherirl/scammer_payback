@@ -6,9 +6,7 @@ https://github.com/samfisherirl/scammer_payback/blob/main/README.md#evidence
 
 Scammer Payback is a Scam Vigilante, targeting Indian and Nigerian scammers who trick the elderly into transferring funds via social engineering and tech savvy tactics.
 
-He livestreams, cropping to YouTube videos. His biggest videos contain a sequence of events that are highly improbable but seem to happen repeatedly in the exact same way.
-
-Some of his interactions appear genuine. There seems to be a template for successful videos on his channel involving conversations with the scammer and victim. It always magically unfolds without major hiccups. The victim consistently asks, "How do you make money?" allowing him to promote his channel. Then, he emotionally expresses doing it for the people.
+He livestreams, cropping to YouTube videos. His biggest videos contain a sequence of events that are highly improbable but seem to happen repeatedly in the exact same way.There seems to be a template for successful videos on his channel involving conversations with the scammer and victim at the same time. It always magically unfolds without major hiccups. 
 
 Additionally, he claims hacking skills akin to *The Minority Report*. He infiltrates scammers' computers seamlessly. Moreover, he seemingly accesses victims' phones and computers with minimal delay or issues. None of this gets shown to the audience. The audience never sees any law enforcement and never sees any hacking. 
 
