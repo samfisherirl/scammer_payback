@@ -49,6 +49,8 @@ Happy victims, FBI contacts, fake Soy moments
 - https://youtu.be/GsJigfdl8F8?si=ESO0O6rPlO0eruCZ&t=948
 - others:
    - https://youtu.be/9Zo_uVeEPCM?t=1959
+ 
+ - Similar to her story https://youtu.be/1SmR_8Azjns?si=_E3Sthilgr8kjWRm&t=715
 
 
 I cant believe this gas station clerk is also as friendly as the victim. 
