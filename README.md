@@ -29,12 +29,10 @@ Questionable situational awareness:
 
 # Evidence part 1
 Happy victims, FBI contacts, fake Soy moments
-- Soy camera rant: https://youtu.be/6xN_6joxx5U?t=377
-- He gets mogged here: https://youtu.be/N0HfSLa9l3w?si=w239jYlAkFRPznBQ&t=667
+- First, going over some memes. Watch 2-5 minutes each based on relevancy.  
 - Contradictionn about his engagement with lawenforcement
 -      https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
-- calls national police, they say call local. he does, they help supposedly.  he calls this doing it backwards. Before, he said local police never help. 
-- cries to drive it home
+ - cries on  drive home -> hes always crying 
 -  He says he has FBI contacts, but- He loves to prank the scammers. Usually this involves giving up info about the employees. Now if he wanted to provide for lawenforcement, the cover is blown .
 - https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
 - Immediate response from victim without introduction: https://youtu.be/6xN_6joxx5U?t=415
