@@ -28,28 +28,6 @@ Questionable situational awareness:
  
 
 # Evidence part 1
-
-### SP says he shut down call center, no where in the news is he mentioned; 
-- "Scammer Payback" "pierogi" Ludhiana fake call center claim: https://youtu.be/UdEELggaY5Q?t=40
-- No part of the video includes anything but threater. No calls with scammmers, no calls with police, its just a story time video/ 
-- Claims of having FBI contacts he controls: https://youtu.be/_3RBNNbMhqs?t=467
-- story: https://timesofindia.indiatimes.com/city/ludhiana/fake-call-centre-busted-in-ludhiana-29-held/articleshow/102032566.cms#:~:text=Ludhiana%20police%20on%20Friday%20claimed,top%20multinational%20companies%2C%20officials%20said.
-- claims local police are trash https://youtu.be/_3RBNNbMhqs?si=3eIYENUcz5WpLlWD&t=467
-- Doubtful footage, no external confirmation: https://youtu.be/UdEELggaY5Q?t=499
-- Suspiciously convenient promotional moment: https://youtu.be/UdEELggaY5Q?t=767
-- claim: https://youtu.be/UdEELggaY5Q?t=40
-- celebrating on the day of the raid as if they did something. Not a single officer or member of law inforcement on stream. https://youtu.be/UdEELggaY5Q?t=3369
-_______
-
-#### Searching his channel and region of events comes up nothing found. 
-
-- my cross ref:https://www.google.com/search?q="Scammer+Payback"+ludhiana+fake+call+center&sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&biw=1514&bih=987&sxsrf=ADLYWIIIQp657Kigu9o1shY_19K2iE30fA%3A1720204146879&ei=cjuIZqigNcmlptQP85OOmAk&ved=0ahUKEwioofbow5CHAxXJkokEHfOJA5MQ4dUDCA8&uact=5&oq="Scammer+Payback"+ludhiana+fake+call+center&gs_lp=Egxnd3Mtd2l6LXNlcnAiKyJTY2FtbWVyIFBheWJhY2siIGx1ZGhpYW5hIGZha2UgY2FsbCBjZW50ZXIyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEdIsc0GUMzLBljMywZwBHgBkAEAmAEAoAEAqgEAuAEDyAEA-AEBmAIEoAIQmAMAiAYBkAYIkgcBNKAHAA&sclient=gws-wiz-serp
-
-- and again https://www.google.com/search?sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&sxsrf=ADLYWIJn_ItGATj_H8ZGfv72btNWmgZRDQ:1720204143272&q="Scammer+Payback"+"pierogi"+ludhiana+fake+call+center&spell=1&sa=X&ved=2ahUKEwi8l5rnw5CHAxXyAHkGHfayCpMQBSgAegQICRAB&biw=1514&bih=987&dpr=1.2
-_______
- 
-## Evidence part 2 
-
 Happy victims, FBI contacts, fake Soy moments
 - Soy camera rant: https://youtu.be/6xN_6joxx5U?t=377
 - He gets mogged here: https://youtu.be/N0HfSLa9l3w?si=w239jYlAkFRPznBQ&t=667
@@ -83,6 +61,30 @@ Promotional Disclaimer:
  
 - Describes actions without showing methods: https://youtu.be/N0HfSLa9l3w?t=164
 - Interaction with notepad.exe and scammers: https://youtu.be/N0HfSLa9l3w?t=675
+## Evidence part 2 
+
+### Perogi claims Spammer Payback lead investigators to close down 3 call centers in India
+- The local police put out press conference and the timeline doest match, as well as the police not mentioning Scammer Payback.
+- If we think its secret, there are other government orgs Perogi is apart of. 
+- "Scammer Payback" "pierogi" Ludhiana fake call center claim: https://youtu.be/UdEELggaY5Q?t=40
+- No part of the video includes anything but threater. No calls with scammmers, no calls with police, its just a story time video/ 
+- Claims of having FBI contacts he controls: https://youtu.be/_3RBNNbMhqs?t=467
+- story: https://timesofindia.indiatimes.com/city/ludhiana/fake-call-centre-busted-in-ludhiana-29-held/articleshow/102032566.cms#:~:text=Ludhiana%20police%20on%20Friday%20claimed,top%20multinational%20companies%2C%20officials%20said.
+- claims local police are trash https://youtu.be/_3RBNNbMhqs?si=3eIYENUcz5WpLlWD&t=467
+- Doubtful footage, no external confirmation: https://youtu.be/UdEELggaY5Q?t=499
+- Suspiciously convenient promotional moment: https://youtu.be/UdEELggaY5Q?t=767
+- claim: https://youtu.be/UdEELggaY5Q?t=40
+- celebrating on the day of the raid as if they did something. Not a single officer or member of law inforcement on stream. https://youtu.be/UdEELggaY5Q?t=3369
+_______
+
+#### Searching his channel and region of events comes up nothing found. 
+
+- my cross ref:https://www.google.com/search?q="Scammer+Payback"+ludhiana+fake+call+center&sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&biw=1514&bih=987&sxsrf=ADLYWIIIQp657Kigu9o1shY_19K2iE30fA%3A1720204146879&ei=cjuIZqigNcmlptQP85OOmAk&ved=0ahUKEwioofbow5CHAxXJkokEHfOJA5MQ4dUDCA8&uact=5&oq="Scammer+Payback"+ludhiana+fake+call+center&gs_lp=Egxnd3Mtd2l6LXNlcnAiKyJTY2FtbWVyIFBheWJhY2siIGx1ZGhpYW5hIGZha2UgY2FsbCBjZW50ZXIyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEdIsc0GUMzLBljMywZwBHgBkAEAmAEAoAEAqgEAuAEDyAEA-AEBmAIEoAIQmAMAiAYBkAYIkgcBNKAHAA&sclient=gws-wiz-serp
+
+- and again https://www.google.com/search?sca_esv=891eb93c4edd4a1c&sca_upv=1&rlz=1C1ONGR_enUS1102US1102&sxsrf=ADLYWIJn_ItGATj_H8ZGfv72btNWmgZRDQ:1720204143272&q="Scammer+Payback"+"pierogi"+ludhiana+fake+call+center&spell=1&sa=X&ved=2ahUKEwi8l5rnw5CHAxXyAHkGHfayCpMQBSgAegQICRAB&biw=1514&bih=987&dpr=1.2
+_______
+ 
+
 
 # General outline 
 
