@@ -48,8 +48,9 @@ Random questionable facts
 - Twice just in this video:
 - https://youtu.be/GsJigfdl8F8?si=jn-A2u57wluocZ74&t=457
 - https://youtu.be/GsJigfdl8F8?si=ESO0O6rPlO0eruCZ&t=948
-- others:
+- other oddly convenient namedrops:
    - https://youtu.be/9Zo_uVeEPCM?t=1959
+   - https://www.youtube.com/watch?v=UdEELggaY5Q&t=777s
  
  - Similar to her story https://youtu.be/1SmR_8Azjns?si=_E3Sthilgr8kjWRm&t=715
 
