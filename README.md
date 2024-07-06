@@ -29,11 +29,12 @@ Questionable situational awareness:
  
 
 # Evidence part 1
+*These are my person notes which can be tough to read.*
 Happy victims, FBI contacts, fake Soy moments
 ### Start by watching this example video for context, specifically this portion is questionable: 
 - https://youtu.be/GsJigfdl8F8?si=baNt5l1Lb5f-XqFP&t=549
 - Victim is 77 years old
-- Can uninstall apps but withdrawing money is tricky
+- Victim is smart enough to have the ability to uninstall iPhone apps, but cant 
 -  ![x9XmKQx](https://github.com/samfisherirl/scammer_payback/assets/98753696/295ce320-7801-437d-90ff-a0d706e52670)
 ![fVjRrxg](https://github.com/samfisherirl/scammer_payback/assets/98753696/320028c4-fe68-4a2d-93b4-8ddaf7012f77)
 
