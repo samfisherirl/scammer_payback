@@ -43,7 +43,7 @@ Questionable situational awareness:
 - Doubtful footage, no external confirmation: https://youtu.be/UdEELggaY5Q?t=499
 - Suspiciously convenient promotional moment: https://youtu.be/UdEELggaY5Q?t=767
 - claim: https://youtu.be/UdEELggaY5Q?t=40
-- celebrating on the day of the raid as if they did something, and we saw a single conversation with an officer. https://youtu.be/UdEELggaY5Q?t=3369
+- celebrating on the day of the raid as if they did something. Not a single officer or member of law inforcement on stream. https://youtu.be/UdEELggaY5Q?t=3369
 _______
 
 #### Searching his channel and region of events comes up nothing found. 
