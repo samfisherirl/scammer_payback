@@ -10,12 +10,12 @@ Scammer Payback is a Scam Vigilante, targeting Indian and Nigerian scammers who 
  I believe he imploys actors in the place of victims to ensure his video story board flows concurrently, and to ensure there's a climax  and resolution. 
 
 ## Key Reasons for Skepticism:
-Claims to have taken down three call centers in India, as reported in national news. However, his absence in the story, discrepancies in the narrative and timeline, and lack of evidence undermine his claims.
+- Claims to have taken down three call centers in India, as reported in national news. However, his absence in the story, discrepancies in the narrative and timeline, and lack of evidence undermine his claims.
 
-All significant videos follow the same path with implausibly improbable outcomes. There are indications that significant events are scripted with actors.
-- He consistently hacks both scam victims and scammers, and manages to get both on the phone. 
-- Victims do not question him during calls; they seem elated to hear from him.
-- Victims often ask leading questions that seamlessly segue to his self-promotion at the climax of the narrative.
+- All significant videos follow the same path with implausibly improbable outcomes. There are indications that significant events are scripted with actors.
+  - He consistently hacks both scam victims and scammers, and manages to get both on the phone within minutes. 
+  - Victims do not question him during calls; they seem elated to hear from him.
+  - Victims often ask leading questions that seamlessly segue to his self-promotion at the climax of the narrative.
 
 ### Abstract contradictions and inflated claims of authority:
 - Alleges connections with the FBI, suggesting they are on standby during calls.
