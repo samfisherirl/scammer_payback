@@ -47,7 +47,10 @@ Happy victims, FBI contacts, fake Soy moments
 others
    - https://www.youtube.com/watch?v=UdEELggaY5Q&t=777s
    - https://youtu.be/9Zo_uVeEPCM?t=1959
+
+
 I cant believe this gas station clerk is also as friendly as the victim. 
+
 https://youtu.be/GsJigfdl8F8?si=j_sizeH6x9hsdXLL&t=448 
 - Watch 2-5 minutes each based on relevancy.  
 - Contradictionn about his engagement with lawenforcement - claims FBI on standbye.
