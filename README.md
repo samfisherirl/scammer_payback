@@ -29,7 +29,18 @@ Questionable situational awareness:
 
 # Evidence part 1
 Happy victims, FBI contacts, fake Soy moments
-### Start by watching this example video for context, specifically this portion is questionable: https://youtu.be/GsJigfdl8F8?si=baNt5l1Lb5f-XqFP&t=749
+### Start by watching this example video for context, specifically this portion is questionable: 
+- https://youtu.be/GsJigfdl8F8?si=baNt5l1Lb5f-XqFP&t=749
+- Victim is 77 years old
+- https://youtu.be/GsJigfdl8F8?si=j_sizeH6x9hsdXLL&t=448
+- Can uninstall apps but withdrawing money is tricky
+- https://i.imgur.com/x9XmKQx.png
+- [https://i.imgur.com/x9XmKQx.png](https://i.imgur.com/fVjRrxg.png)
+- was just talking to scammers
+- she wasnt curious about why hes calling
+
+https://youtu.be/GsJigfdl8F8?si=j_sizeH6x9hsdXLL&t=448
+- He calls the local gas station, also a friendly guy. This is like 007 now. 
 - Watch 2-5 minutes each based on relevancy.  
 - Contradictionn about his engagement with lawenforcement - claims FBI on standbye.
 -      https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
