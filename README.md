@@ -20,7 +20,6 @@ All significant videos follow the same path with implausibly improbable outcomes
 - Alleges connections with the FBI, suggesting they are on standby during calls.
 - Claims to have the Nigerian Federal Police conduct raids at his request, while critiquing local law enforcement.
 Contradictory elements:
-- Mentions having the police "on standby," seeming implausible for an individual YouTuber.
 - Asserts possession of actionable intelligence yet fails to engage with authorities.
 
 Questionable situational awareness:
