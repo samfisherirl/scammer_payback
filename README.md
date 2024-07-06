@@ -59,11 +59,7 @@ https://youtu.be/GsJigfdl8F8?si=j_sizeH6x9hsdXLL&t=448
 -      https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
  - cries on  drive home -> hes always crying https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
 -  He says he has FBI contacts, but- He loves to prank the scammers. Usually this involves giving up info about the employees. Now if he wanted to provide for lawenforcement, the cover is blown .
-Sus Activity
-Instances of:
-   Caller (victim) prompting him to promote his channel at the climax of stories
-   - https://www.youtube.com/watch?v=UdEELggaY5Q&t=777s
-   - https://youtu.be/9Zo_uVeEPCM?t=1959
+
 - Immediate response from victim without introduction: https://youtu.be/6xN_6joxx5U?t=415
 - Perfect soy moment conclusion: https://youtu.be/6xN_6joxx5U?t=521 
 - Fakes being a woman: https://youtu.be/_3RBNNbMhqs?t=285
