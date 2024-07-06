@@ -30,6 +30,7 @@ Questionable situational awareness:
 
 # Evidence part 1
 *These are my person notes which can be tough to read.*
+
 Happy victims, FBI contacts, fake Soy moments
 ### Start by watching this example video for context, specifically this portion is questionable: 
 - https://youtu.be/GsJigfdl8F8?si=baNt5l1Lb5f-XqFP&t=549
