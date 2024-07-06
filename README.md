@@ -6,9 +6,7 @@ https://github.com/samfisherirl/scammer_payback/blob/main/README.md#evidence
 
 Scammer Payback is a Scam Vigilante, targeting Indian and Nigerian scammers who trick the elderly into transferring funds out of their bank and to the scammer. This is done via social engineering and tech savvy tactics.
 
-He livestreams, cropping to YouTube videos. His biggest videos contain a sequence of events that are highly improbable but seem to happen repeatedly in the exact same way.There seems to be a template for successful videos on his channel involving conversations with the scammer and victim at the same time. It always magically unfolds without major hiccups. 
-
-Additionally, he claims hacking skills akin to *The Minority Report*. He infiltrates scammers' computers seamlessly. Moreover, he seemingly accesses victims' phones and computers with minimal delay or issues. None of this gets shown to the audience. The audience never sees any law enforcement and never sees any hacking. 
+He livestreams, cropping to YouTube videos. His biggest videos contain a sequence of events that are highly improbable but seem to happen repeatedly in the exact same way. Scammer Payback manages to cold call scam victims being targeted in real time, get a quick answer, and a friendly person who is actively being scammed. This is unfathomable once, but there are at least half a dozen examples of this exact scenario. 
 
 ## Key Reasons for Skepticism:
 Claims to have taken down three call centers in India, as reported in national news. However, his absence in the story, discrepancies in the narrative and timeline, and lack of evidence undermine his claims.
@@ -17,7 +15,6 @@ All significant videos follow the same path with implausibly improbable outcomes
 - He consistently hacks both scam victims and scammers, and manages to get both on the phone. 
 - Victims do not question him during calls; they seem elated to hear from him.
 - Victims often ask leading questions that seamlessly segue to his self-promotion at the climax of the narrative.
-- I have had a few dozen customers I had to talk to about an active fraud, people are always weary and rarely will believe that you're with <`insert financial institution`>. Theyre being scammed at the time, and they dont trust anyone. Especially since the *Scammer* is calling usually from "Fraud Prevention". It becomes confusing fast. 
 
 ### Abstract contradictions and inflated claims of authority:
 - Alleges connections with the FBI, suggesting they are on standby during calls.
