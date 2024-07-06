@@ -6,7 +6,7 @@ https://github.com/samfisherirl/scammer_payback/blob/main/README.md#evidence
 
 Scammer Payback is a Scam Vigilante, targeting Indian and Nigerian scammers who trick the elderly into transferring funds out of their bank and to the scammer. This is done via social engineering and tech savvy tactics.
 
-He livestreams, cropping to YouTube videos. I believe he imploys actors in the place of victims to ensure his video story board flows concurrently, and to ensure there's a climax  and resolution. 
+ I believe he imploys actors in the place of victims to ensure his video story board flows concurrently, and to ensure there's a climax  and resolution. 
 
 ## Key Reasons for Skepticism:
 Claims to have taken down three call centers in India, as reported in national news. However, his absence in the story, discrepancies in the narrative and timeline, and lack of evidence undermine his claims.
