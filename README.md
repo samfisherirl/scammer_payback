@@ -40,6 +40,9 @@ Happy victims, FBI contacts, fake Soy moments
 
 - was just talking to scammers
 - she wasnt curious about why hes calling or if hes real
+- https://youtu.be/GsJigfdl8F8?si=dDeGlHyZpeYChhzb&t=868
+- here she lays out her age, her worth, and asks perogi to promote his channel multiple times. 
+- 
 - Perogi always gets a  chance to name drop his channel when he talks to victims, they always ask why or who.
 - Twice just in this video:
 - https://youtu.be/GsJigfdl8F8?si=jn-A2u57wluocZ74&t=457
