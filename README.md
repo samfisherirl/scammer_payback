@@ -93,9 +93,10 @@ Promotional Disclaimer:
 
 ### Perogi claims Spammer Payback lead investigators to close down 3 call centers in India
 - The local police put out press conference and the timeline doest match, as well as the police not mentioning Scammer Payback.
-- If we think its secret, there are other government orgs Perogi is apart of. 
 - "Scammer Payback" "pierogi" Ludhiana fake call center claim: https://youtu.be/UdEELggaY5Q?t=40
 - No part of the video includes anything but threater. No calls with scammmers, no calls with police, its just a story time video/ 
+- If we look at Perogi vs Other Scammer Payback style channels, when discussing international Police involvement, other channels will show CCTV of the arrest https://youtu.be/qmd_gIFTLTo?si=flIWGRCJddrwTzRB&t=1084
+- Which makes me wonder why Perogi has CCTV footage but none that aligns with the conversationn hes having with the caller.
 - Claims of having FBI contacts he controls: https://youtu.be/_3RBNNbMhqs?t=467
 - story: https://timesofindia.indiatimes.com/city/ludhiana/fake-call-centre-busted-in-ludhiana-29-held/articleshow/102032566.cms#:~:text=Ludhiana%20police%20on%20Friday%20claimed,top%20multinational%20companies%2C%20officials%20said.
 - claims local police are trash https://youtu.be/_3RBNNbMhqs?si=3eIYENUcz5WpLlWD&t=467
