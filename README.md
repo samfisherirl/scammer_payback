@@ -32,15 +32,20 @@ Happy victims, FBI contacts, fake Soy moments
 ### Start by watching this example video for context, specifically this portion is questionable: 
 - https://youtu.be/GsJigfdl8F8?si=baNt5l1Lb5f-XqFP&t=749
 - Victim is 77 years old
-- https://youtu.be/GsJigfdl8F8?si=j_sizeH6x9hsdXLL&t=448
 - Can uninstall apps but withdrawing money is tricky
-- https://i.imgur.com/x9XmKQx.png
-- [https://i.imgur.com/x9XmKQx.png](https://i.imgur.com/fVjRrxg.png)
-- was just talking to scammers
-- she wasnt curious about why hes calling
+-  ![x9XmKQx](https://github.com/samfisherirl/scammer_payback/assets/98753696/295ce320-7801-437d-90ff-a0d706e52670)
 
-https://youtu.be/GsJigfdl8F8?si=j_sizeH6x9hsdXLL&t=448
-- He calls the local gas station, also a friendly guy. This is like 007 now. 
+- [https://i.imgur.com/x9XmKQx.png](https://i.imgur.com/fVjRrxg.png)![fVjRrxg](https://github.com/samfisherirl/scammer_payback/assets/98753696/1aa4bf82-1879-4236-8365-4b00709b62ff)
+
+- was just talking to scammers
+- she wasnt curious about why hes calling or if hes real
+- Perogi always gets a  chance to name drop his channel when he talks to victims, they always ask why or who.
+- Twice just in this video:
+- https://youtu.be/GsJigfdl8F8?si=jn-A2u57wluocZ74&t=457
+- https://youtu.be/GsJigfdl8F8?si=ESO0O6rPlO0eruCZ&t=948
+
+I cant believe this gas station clerk is also as friendly as the victim. 
+https://youtu.be/GsJigfdl8F8?si=j_sizeH6x9hsdXLL&t=448 
 - Watch 2-5 minutes each based on relevancy.  
 - Contradictionn about his engagement with lawenforcement - claims FBI on standbye.
 -      https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
