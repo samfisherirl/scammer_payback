@@ -29,12 +29,17 @@ Questionable situational awareness:
 
 # Evidence part 1
 Happy victims, FBI contacts, fake Soy moments
-- First, going over some memes. Watch 2-5 minutes each based on relevancy.  
-- Contradictionn about his engagement with lawenforcement
+### Start by watching this example video for context, specifically this portion is questionable: https://youtu.be/GsJigfdl8F8?si=baNt5l1Lb5f-XqFP&t=749
+- Watch 2-5 minutes each based on relevancy.  
+- Contradictionn about his engagement with lawenforcement - claims FBI on standbye.
 -      https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
- - cries on  drive home -> hes always crying 
+ - cries on  drive home -> hes always crying https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
 -  He says he has FBI contacts, but- He loves to prank the scammers. Usually this involves giving up info about the employees. Now if he wanted to provide for lawenforcement, the cover is blown .
-- https://youtu.be/UdEELggaY5Q?si=m97U-9T0N5bEmje2&t=990
+Sus Activity
+Instances of:
+   Caller (victim) prompting him to promote his channel at the climax of stories
+   - https://www.youtube.com/watch?v=UdEELggaY5Q&t=777s
+   - https://youtu.be/9Zo_uVeEPCM?t=1959
 - Immediate response from victim without introduction: https://youtu.be/6xN_6joxx5U?t=415
 - Perfect soy moment conclusion: https://youtu.be/6xN_6joxx5U?t=521 
 - Fakes being a woman: https://youtu.be/_3RBNNbMhqs?t=285
