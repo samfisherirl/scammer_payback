@@ -35,7 +35,7 @@ Happy victims, FBI contacts, fake Soy moments
 - Can uninstall apps but withdrawing money is tricky
 -  ![x9XmKQx](https://github.com/samfisherirl/scammer_payback/assets/98753696/295ce320-7801-437d-90ff-a0d706e52670)
 
-- [https://i.imgur.com/x9XmKQx.png](https://i.imgur.com/fVjRrxg.png)![fVjRrxg](https://github.com/samfisherirl/scammer_payback/assets/98753696/1aa4bf82-1879-4236-8365-4b00709b62ff)
+- [fVjRrxg](https://github.com/samfisherirl/scammer_payback/assets/98753696/1aa4bf82-1879-4236-8365-4b00709b62ff)
 
 - was just talking to scammers
 - she wasnt curious about why hes calling or if hes real
