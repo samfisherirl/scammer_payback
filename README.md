@@ -52,7 +52,7 @@ _______
 
 Happy victims, FBI contacts, fake Soy moments
 - Soy camera rant: https://youtu.be/6xN_6joxx5U?t=377
-- 
+- He gets mogged here: https://youtu.be/N0HfSLa9l3w?si=w239jYlAkFRPznBQ&t=667
 - Contradictionn about his engagement with lawenforcement
 -      https://youtu.be/UdEELggaY5Q?si=EiKYYMU6ZIxSXc_o&t=1266
 - calls national police, they say call local. he does, they help supposedly.  he calls this doing it backwards. Before, he said local police never help. 
