@@ -1,5 +1,5 @@
 # Allegation: Youtuber 'Scammer Payback' is a fake. 
-### Skip to here for evidence, videos.  
+### Skip to evidence here: 
 
 https://github.com/samfisherirl/scammer_payback/blob/main/README.md#evidence-part-1
 
